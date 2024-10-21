@@ -1,2 +1,2 @@
-![MECHERI BAKTA](![image](https://github.com/user-attachments/assets/830a3967-d156-4cdb-b055-ed8fb5ac6844.jpeg?raw=true)
+![MECHERI BAKTA](![image](https://github.com/bakta-co/readme/blob/main/banniere-bakta-co.jpeg?raw=true)
 )
